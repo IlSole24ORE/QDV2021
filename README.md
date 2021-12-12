@@ -4,7 +4,7 @@
 La trentaduesima edizione della tradizionale classifica annuale con la quale Il Sole 24 ORE premia le province italiane che hanno ottenuto le migliori performance in una serie di indicatori scelti come paradigmatici per valutare il benessere personale e familiare.
 
 ## Edizione 2021 ##
-L'edizione 2021 è stata pubblicata su Il Sole 24 ORE di *Lunedì 13 Dicembre 2020* e sul sito [www.ilsole24ore.com](https://www.ilsole24ore.com)
+L'edizione 2021 è stata pubblicata su Il Sole 24 ORE di *Lunedì 13 Dicembre 2021* e sul sito [www.ilsole24ore.com](https://www.ilsole24ore.com)
 
 ## Il Sole 24 ORE ##
 
